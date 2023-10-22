@@ -16,6 +16,6 @@
 #### So yeah I have lots of things to learn and I will keep going until I learn all of this.
 
 
-#### Update (21-10-2023): I found this youtube tutorial which is great I mean that I will learn from a video and I won't have to look and read the whole book which is really greate
+#### Update (21-10-2023): I found this youtube tutorial which is great I mean that I will learn from a video and I won't have to look and read the whole book which is really great.
 
 ##### Here is the [link](https://www.youtube.com/watch?v=H0xBSbnQYds&list=PLai5B987bZ9CoVR-QEIN9foz4QCJ0H2Y8)
